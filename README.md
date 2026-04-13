@@ -18,7 +18,6 @@ https://github.com/tuleshwarsahu638-cpu
 ## 📫 Contact Me
 
 Email: tuleshwarsahu638@gmail.com
-Instagram: Tuleshwar_sahu_55
 
 ---
 
